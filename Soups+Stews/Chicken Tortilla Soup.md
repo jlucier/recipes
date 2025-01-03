@@ -11,6 +11,7 @@
 ## Cooking:
 
 - The world is your oyster:
-- 1 hr on the stove
-- 3-4 hr in the crockpot
-- 22 mins on high in the pressure cooker
+  - 1 hr on the stove
+  - 3-4 hr in the crockpot
+  - 22 mins on high in the pressure cooker
+- Add 1-2 tbsp of kosher salt (morton) at the beginning
