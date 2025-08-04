@@ -5,7 +5,7 @@
 - 14oz can of kidney beans
 - 14oz can French-style green beans
 - 28oz can pork & beans
-- 1 cup brown sugar
+- 3/4 cup brown sugar
 - 1 cup Heinz chili sauce
 - 1 bunch scallions (green onion), chopped
 - 1 bell pepper, sliced
